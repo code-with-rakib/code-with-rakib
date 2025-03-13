@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
+[![MasterHead]([https://1.bp.blogspot.com/-7A4WynwLsM...](https://media2.giphy.com/media/Ll22OhMLAlVDb8UQWe/giphy.gif))](https://rishavchanda.io)
 
 <h1 align="center">Hi 👋, I'm Rakib Hasan</h1>
 <h3 align="center">Hey there! I'm Rakib Hasan</h3>
